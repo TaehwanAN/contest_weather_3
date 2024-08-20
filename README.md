@@ -11,7 +11,7 @@
 ![image](https://github.com/user-attachments/assets/c5ce2bc8-7b04-4075-b730-e5251b3e5266)
 ---
 # 수상실적확인
-![제목 없음](https://github.com/user-attachments/assets/76858392-d136-471a-a7ce-05a341910709)
+![제목 없음](https://github.com/user-attachments/assets/4d61e546-28bc-48ba-9c1d-c892aa1b1521)
 ---
 # 발표자료
 - 링크: https://drive.google.com/file/d/18IIu1JOr0OGSuoDvEE2s07MBPkWVOJye/view?usp=drive_link
